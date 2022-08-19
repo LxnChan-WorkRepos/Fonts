@@ -2,4 +2,4 @@
 
 Non-commercial use only.
 
-DMCA Contact: [lxnchan@outlook.com](mailto:lxnchan@outlook.com)
+DMCA Contact: [font.contact.githubrepo@lxnchan.eu.org](mailto:font.contact.githubrepo@lxnchan.eu.org)
